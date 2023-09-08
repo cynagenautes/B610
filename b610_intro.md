@@ -40,7 +40,7 @@ MA5671はAliexpressで約$60で入手できます。
 
 ## B610 P602Eの違いについて
 
-中国本土でもそのことについて関心があるみたいで中国語の[ブログ](http://www.xishanju.cn/show.aspx?id=276&cid=4)にそのことがまとめてありました。
+中国本土でもそのことについて関心があるみたいで中国語の[ブログ(リンク切れによりWayback Machine)](https://web.archive.org/web/20221208212513/http://www.xishanju.cn/show.aspx?id=276&cid=4)にそのことがまとめてありました。
 
 要約すると
 
